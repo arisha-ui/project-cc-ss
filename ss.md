@@ -1,3 +1,6 @@
+![image](https://github.com/arisha-ui/project-cc-ss/assets/76513059/b4895eeb-ca9f-4349-85be-9e7bab15d04d)
+
+
 ![image](https://github.com/arisha-ui/project-cc-ss/assets/76513059/5d065b9c-b9b2-413e-96c4-9159365dd0bb)
 
 ![image](https://github.com/arisha-ui/project-cc-ss/assets/76513059/303242c7-2c5d-4ef4-851f-77cdce79f3af)
